@@ -97,3 +97,7 @@ This project is open-source and available under the MIT License.
 📧 Email: ashraftamboli2005@gmail.com
 
 🔗 GitHub: https://github.com/ashraftamboli2005
+<img width="1920" height="946" alt="Screenshot (832)" src="https://github.com/user-attachments/assets/2f74e39f-0c1a-4950-aa51-5cee0e39072d" />
+
+
+
